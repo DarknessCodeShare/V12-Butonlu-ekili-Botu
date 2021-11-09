@@ -1,1 +1,1 @@
-# V12-Butonlu-ekili-Botu
+Discord Sunucumuz discord.gg/theaspendos yazarak bana ulasa bılırsınız
